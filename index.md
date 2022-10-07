@@ -1,5 +1,1 @@
-Here you can say lots of fun things about your site.
-
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+Welcome. Within these webpages, you will find the thoughts of one who has spent and continues to spend their life looking for understanding.
