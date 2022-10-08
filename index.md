@@ -1,1 +1,5 @@
-Welcome. Within these webpages, you will find the thoughts of one who has spent and continues to spend their life looking for understanding.
+Hello, all!
+
+I decided to create this space in order to get many of my rampant thoughts written down and maybe act as a catalyst for more.
+
+That is all.
